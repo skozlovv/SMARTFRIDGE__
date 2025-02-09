@@ -1,0 +1,2 @@
+# SMARTFRIDGE__
+*
